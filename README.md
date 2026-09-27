@@ -1,0 +1,1 @@
+# strategic_and_financial_analysis_of_Melinda_s.c.a.
